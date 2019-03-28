@@ -19,3 +19,9 @@
 
 **Link(s) to work:** https://www.freecodecamp.org/jaredprice
 
+### Day 2: March 28, 2019 
+
+**Today's Progress**: 
+**Thoughts:** 
+
+**Link(s) to work:** 
